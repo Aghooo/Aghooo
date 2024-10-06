@@ -2,7 +2,7 @@
 - 👀 I’m interested in teaching and tech
 - 🌱 I’m currently learning ECE,python,iot, 
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 8594091735
+- 📫 How to reach me akashsasi8594@gmail.com
 - 😄 Pronouns: mmm guess no
 - ⚡ Fun fact: myself is fun 😌
 
